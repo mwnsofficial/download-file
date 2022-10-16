@@ -1,4 +1,4 @@
-# download File Config Openclash
+# Download File Config Openclash
 
 [BEST CONFIG OPENCLASH](https://github.com/masterscription/script/raw/main/openclash/BEST%20CONFIG%20OPENCLASH.rar)
 
