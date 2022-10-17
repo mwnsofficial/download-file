@@ -1,1 +1,3 @@
-# Download File Config Openclash
+# Download File Config Clash For Android
+
+Khusus type android
